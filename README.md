@@ -1,1 +1,1 @@
-# gra-uwa-no--licencjat
+# gra-uwaznosc-licencjat
